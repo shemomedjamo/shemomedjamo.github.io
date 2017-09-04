@@ -1,1 +1,0 @@
-# shemomedjamo.github.io
